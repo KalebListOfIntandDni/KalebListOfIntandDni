@@ -7,7 +7,8 @@ N1 CATERSKATE ﾉ SKATERPILLAR ENTHUSIAST!
   "Doh.. I should'nt deserve these.."
 
   
-<img width="330" height="330" alt="image" src="https://github.com/user-attachments/assets/8b1c342f-2033-4258-b61d-abdd180f29de" />
+<img width="700" height="496" alt="image" src="https://github.com/user-attachments/assets/f9020211-c08e-4291-bafb-a58735a65d7a" />
+
 
 (˶°ㅁ°)!! He ﾉ They
 
