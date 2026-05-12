@@ -1,16 +1,15 @@
-## Hi there 👋
+▄▀▄▀▄▀▄▀▄▀▄  Kaleb or Kasper  ▄▀▄▀▄▀▄▀▄▀▄
 
-<!--
-**KalebListOfIntandDni/KalebListOfIntandDni** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+N1 CATERSKATE ﾉ SKATERPILLAR ENTHUSIAST! 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+  "Doh.. I should'nt deserve these.."
+
+  
+<img width="330" height="330" alt="image" src="https://github.com/user-attachments/assets/8b1c342f-2033-4258-b61d-abdd180f29de" />
+
+(˶°ㅁ°)!! He ﾉ They
+
+𝄞𝄢 Fictionkin ,, Doubles interact! ,, Yumeshipper ﾉ Very sharing!
+
