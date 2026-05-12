@@ -11,5 +11,5 @@ N1 CATERSKATE ﾉ SKATERPILLAR ENTHUSIAST!
 
 (˶°ㅁ°)!! He ﾉ They
 
-𝄞𝄢 Fictionkin ,, Doubles interact! ,, Yumeshipper ﾉ Very sharing!
+𝄞𝄢 Synpath ,, Doubles still interact! ,, Yumeshipper ﾉ Very sharing!
 
