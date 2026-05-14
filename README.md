@@ -6,7 +6,8 @@
 
 N1 CATERSKATE ﾉ SKATERPILLAR ENTHUSIAST! 
   
-<img width="700" height="496" alt="image" src="https://github.com/user-attachments/assets/f9020211-c08e-4291-bafb-a58735a65d7a" />
+<img width="700" height="496" alt="image" src="https://github.com/user-attachments/assets/31eedda1-44bf-4500-b87d-11ad516d1bef" />
+
 
 
 (˶°ㅁ°)!! He ﾉ They
