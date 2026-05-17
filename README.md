@@ -8,8 +8,15 @@ Ponytown : DNCoveruf, C+H+K freely, offtab like almost all the time so w2i, Ship
 
 <img width="700" height="496" alt="image" src="https://github.com/user-attachments/assets/31eedda1-44bf-4500-b87d-11ad516d1bef" />
 
-
 N1 CATERSKATE ﾉ SKATERPILLAR ENTHUSIAST! 
 
+Yumes ; 
+Docotor - The freak circus
+Maisie - Laceys flash games
+Drel - Terror realm
+Split - Regretavator
+Devesto - Die of death
 
-
+Synpaths ;
+Infected - Split - Pilby - Jaoba - Regretavator
+Moe - Regect - A ReGect
