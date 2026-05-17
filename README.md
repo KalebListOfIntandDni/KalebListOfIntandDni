@@ -11,7 +11,7 @@ Ponytown : DNCoveruf, C+H+K freely, offtab like almost all the time so w2i, Ship
 N1 CATERSKATE ﾉ SKATERPILLAR ENTHUSIAST! 
 
 Yumes ; 
-Docotor - The freak circus
+Doctor - The freak circus
 Maisie - Laceys flash games
 Drel - Terror realm
 Split - Regretavator
