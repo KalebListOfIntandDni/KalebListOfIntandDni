@@ -15,12 +15,26 @@ I am relatively sensitive and my comprehension when in a serious talk is very lo
 N1 CATERSKATE ﾉ SKATERPILLAR ENTHUSIAST! 
 
 Yumes ; 
+
+
 Doctor - The freak circus
+
+
 Maisie - Laceys flash games
+
+
 Drel - Terror realm
+
+
 Split - Regretavator
+
+
 Devesto - Die of death
 
 Synpaths ;
+
+
 Infected - Split - Pilby - Jaoba - Regretavator
+
+
 Moe - Regect - A ReGect
